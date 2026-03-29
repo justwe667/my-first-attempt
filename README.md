@@ -1,3 +1,3 @@
 # my-first-attempt
 
-# thanks for you view
+# thanks for your view
